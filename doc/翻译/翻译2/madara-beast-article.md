@@ -1,3 +1,4 @@
+![madara-2-](/Users/windrider/Desktop/madara-2-.png)
 # 驾驭巨兽 - Madara和Starknet应用链的革新
 
 **2023年7月20日** · 1分钟阅读时间
